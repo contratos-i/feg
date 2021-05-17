@@ -7,4 +7,4 @@ Mad Paddler
 @VantasticMagic
 Replying to 
 @dexftp
-EMILY scammed millions off of people. The name was changed for the COMMUNITY once it got a little traction.. WE ARE STRONG $FEG
+EMILY scammed millions off of people. The name was changed for the COMMUNITY once it got a little traction.. WE ARE STRONG <a href="https://fegtoken.com/">$FEG</a>
